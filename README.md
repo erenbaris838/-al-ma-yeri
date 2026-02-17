@@ -1,1 +1,1 @@
-# -al-ma-yeri
+calısma YERİ
